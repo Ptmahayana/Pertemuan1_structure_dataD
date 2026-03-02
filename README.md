@@ -1,0 +1,1 @@
+# Pertemuan1_structure_dataD
